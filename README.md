@@ -22,8 +22,6 @@
 
  + Amante del trap Argentino 
 
- + Fan de Duki 😈
-
  + Amante de Jurassic Park 🦖
 
  + Superhéroe favorito Spiderman
